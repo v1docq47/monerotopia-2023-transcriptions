@@ -1,6 +1,6 @@
 # Yessica Ortega
 
-_**Architect & Professional Monero Fighting Queen: Yessica Ortega**_
+_**Architect & Professional Monero Fighting Queen**_
 
 [https://youtu.be/vBLWCJKVi-s](https://youtu.be/vBLWCJKVi-s)
 
