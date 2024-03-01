@@ -1,6 +1,6 @@
 # Justin Ehrenhofer
 
-_** An overview of Bitcoin Privacy efforts: the Good, the Bad, and the Ugly**_
+_**An overview of Bitcoin Privacy efforts: the Good, the Bad, and the Ugly**_
 
 [https://youtu.be/0hEXXSkKS94](https://youtu.be/0hEXXSkKS94)
 
