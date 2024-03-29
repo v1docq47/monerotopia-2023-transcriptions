@@ -2,7 +2,7 @@
 
 _**Monero и многое другое - реализация второго уровня и инфраструктуры доказательства доли владения на базе протокола CryptoNote**_
 
-[https://youtu.be/zBCV2UvAYWY](https://youtu.be/zBCV2UvAYWY)
+[https://youtu.be/Lkh0CCN9UBQ](https://youtu.be/Lkh0CCN9UBQ)
 
 ---
 

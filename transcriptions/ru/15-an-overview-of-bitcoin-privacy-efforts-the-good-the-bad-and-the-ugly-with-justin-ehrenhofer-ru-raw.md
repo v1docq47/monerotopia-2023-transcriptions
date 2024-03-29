@@ -2,7 +2,7 @@
 
 _**Попытки повышения приватности Bitcoin: хорошие, плохие и ужасные**_
 
-[https://youtu.be/0hEXXSkKS94](https://youtu.be/0hEXXSkKS94)
+[https://youtu.be/UYE-wOS8yJ0](https://youtu.be/UYE-wOS8yJ0)
 
 ---
 

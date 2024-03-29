@@ -2,7 +2,7 @@
 
 _**Налоги — это грабёж**_
 
-[https://youtu.be/NSDMsSURWZo](https://youtu.be/NSDMsSURWZo)
+[https://youtu.be/LE3Rr9ZwjGw](https://youtu.be/LE3Rr9ZwjGw)
 
 ---
 

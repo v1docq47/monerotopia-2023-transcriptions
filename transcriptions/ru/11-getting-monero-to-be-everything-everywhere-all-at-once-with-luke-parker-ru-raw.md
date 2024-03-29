@@ -2,7 +2,7 @@
 
 _**Как сделать Monero всем, везде и сразу**_
 
-[https://youtu.be/prNvJWILkoI](https://youtu.be/prNvJWILkoI)
+[https://youtu.be/2MgWx1Fpht4](https://youtu.be/2MgWx1Fpht4)
 
 ---
 

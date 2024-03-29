@@ -2,7 +2,7 @@
 
 _**Zarcanum: Использование схемы доказательства ставки при проведении конфиденциальных транзакций с сокрытием суммы**_
 
-[https://youtu.be/6NQ-TiE5syY](https://youtu.be/6NQ-TiE5syY)
+[https://youtu.be/YxfirdlgdPs](https://youtu.be/YxfirdlgdPs)
 
 ---
 

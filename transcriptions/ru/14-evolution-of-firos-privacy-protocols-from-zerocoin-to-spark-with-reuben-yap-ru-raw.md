@@ -2,7 +2,7 @@
 
 _**Эволюция протоколов обеспечения приватности Firo: от Zerocoin до Spark**_
 
-[https://youtu.be/1xZPqMVvuoc](https://youtu.be/1xZPqMVvuoc)
+[https://youtu.be/GJ9b9UreerI](https://youtu.be/GJ9b9UreerI)
 
 ---
 

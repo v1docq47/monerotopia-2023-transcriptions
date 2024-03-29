@@ -2,7 +2,7 @@
 
 _**OXEN: экосистема приватных приложений**_
 
-[https://youtu.be/tEmimYt7YKY](https://youtu.be/tEmimYt7YKY)
+[https://youtu.be/oQpFeb6DTYA](https://youtu.be/oQpFeb6DTYA)
 
 ---
 
