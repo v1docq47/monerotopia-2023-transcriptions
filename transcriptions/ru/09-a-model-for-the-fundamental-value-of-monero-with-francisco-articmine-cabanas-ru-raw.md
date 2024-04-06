@@ -2,7 +2,7 @@
 
 _**Модель определения фундаментальной ценности Monero**_
 
-[https://youtu.be/w1tsSc3O-qo](https://youtu.be/w1tsSc3O-qo)
+[https://youtu.be/UJ5OmcUCR8U](https://youtu.be/UJ5OmcUCR8U)
 
 ---
 
