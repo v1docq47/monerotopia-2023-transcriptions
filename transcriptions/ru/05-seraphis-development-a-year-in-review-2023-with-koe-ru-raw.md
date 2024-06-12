@@ -2,7 +2,7 @@
 
 _**Разработка Seraphis: что изменилось за 2023 год**_
 
-[https://youtu.be/vXqy0WFbdQc](https://youtu.be/vXqy0WFbdQc)
+[https://youtu.be/YlwmWOU8RFw](https://youtu.be/YlwmWOU8RFw)
 
 ---
 

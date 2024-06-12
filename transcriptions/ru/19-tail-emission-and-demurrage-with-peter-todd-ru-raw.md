@@ -2,7 +2,7 @@
 
 _**Постэмиссия и налог на простой**_
 
-[https://youtu.be/-Dy4DeVhk_g](https://youtu.be/-Dy4DeVhk_g)
+[https://youtu.be/AvoBiK7Z_hY](https://youtu.be/AvoBiK7Z_hY)
 
 ---
 

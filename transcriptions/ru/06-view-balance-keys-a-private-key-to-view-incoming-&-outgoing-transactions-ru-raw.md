@@ -2,7 +2,7 @@
 
 _**Ключи просмотра баланса - приватные ключи для просмотра входящих и исходящих транзакций**_
 
-[https://youtu.be/dw6GKFhKKBE](https://youtu.be/dw6GKFhKKBE)
+[https://youtu.be/Pbby8V53zqA](https://youtu.be/Pbby8V53zqA)
 
 ---
 

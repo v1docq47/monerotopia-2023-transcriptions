@@ -2,7 +2,7 @@
 
 _**Вопросы и ответы по истории протокола CryptoNote**_
 
-[https://youtu.be/ONSvOzB407c](https://youtu.be/ONSvOzB407c)
+[https://youtu.be/K4cdPrEpQSg](https://youtu.be/K4cdPrEpQSg)
 
 ---
 
