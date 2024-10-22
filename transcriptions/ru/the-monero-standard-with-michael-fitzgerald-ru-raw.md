@@ -2,7 +2,7 @@
 
 _**Стандарт Monero**_
 
-[https://youtu.be/NRtm8lV8Rqw](https://youtu.be/NRtm8lV8Rqw)
+[https://youtu.be/aNrbt8Cgquk](https://youtu.be/aNrbt8Cgquk)
 
 ---
 

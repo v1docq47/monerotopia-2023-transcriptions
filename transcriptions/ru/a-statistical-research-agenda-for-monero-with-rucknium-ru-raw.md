@@ -2,7 +2,7 @@
 
 _**Программа статистических исследований для Monero**_
 
-[https://youtu.be/gtRUKTH-jIY](https://youtu.be/gtRUKTH-jIY)
+[https://youtu.be/uydyZVht3uU](https://youtu.be/uydyZVht3uU)
 
 ---
 
