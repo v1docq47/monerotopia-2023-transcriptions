@@ -2,7 +2,7 @@
 
 _**Комплексный анализ безопасности транзакций Monero**_
 
-[https://youtu.be/QQCmFDN9klw](https://youtu.be/QQCmFDN9klw)
+[https://youtu.be/BNIOep9flTU](https://youtu.be/BNIOep9flTU)
 
 ---
 

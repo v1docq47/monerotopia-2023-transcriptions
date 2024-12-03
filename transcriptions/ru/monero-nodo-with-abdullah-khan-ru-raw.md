@@ -2,7 +2,7 @@
 
 _**Monero Nodo**_
 
-[https://youtu.be/Q-C4qj9npRA](https://youtu.be/Q-C4qj9npRA)
+[https://youtu.be/GpoHKLNEVFM](https://youtu.be/GpoHKLNEVFM)
 
 ---
 

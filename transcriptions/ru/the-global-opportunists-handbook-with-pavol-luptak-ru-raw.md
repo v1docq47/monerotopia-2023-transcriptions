@@ -2,7 +2,7 @@
 
 _**Руководство глобального оппортуниста**_
 
-[https://youtu.be/8-oMx6n7yAE](https://youtu.be/8-oMx6n7yAE)
+[https://youtu.be/8nQ-8L321_Y](https://youtu.be/8nQ-8L321_Y)
 
 ---
 
