@@ -2,7 +2,7 @@
 
 _**Моделирование атаки 51%, проводимое государством**_
 
-[https://youtu.be/0kGM1in2mQ4](https://youtu.be/0kGM1in2mQ4)
+[https://youtu.be/mpMGpRCyqRs](https://youtu.be/mpMGpRCyqRs)
 
 ---
 
